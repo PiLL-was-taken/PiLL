@@ -34,4 +34,4 @@ I am a software developer with a background in Design and a Master's in Programm
 
 ---
 
-📫 **How to reach me:** iskanderutepov+career@gmail.com (mailto:iskanderutepov+career@gmail.com) | [LinkedIn Profile]([https://www.linkedin.com/in/yourprofile](https://www.linkedin.com/in/iskander-utepov-607863361/))
+📫 **How to reach me:** iskanderutepov+career@gmail.com (mailto:iskanderutepov+career@gmail.com) | [LinkedIn Profile](https://www.linkedin.com/in/yourprofile](https://www.linkedin.com/in/iskander-utepov-607863361/))
